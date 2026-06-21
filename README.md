@@ -16,7 +16,7 @@ $${\color{#ffc8df}\text{    𓏏𓏏   jay  𖹭  (ᗒ⩊ᗕ)
 
   
 
-$${\color{#ffc8df}\text{      he / him ‿‿ 𓈒 7teen  ੭୧}}$$ 
+$${\color{#ffc8df}\text{      he / him ‿‿ 𓈒 6teen  ੭୧}}$$ 
 
 
 
