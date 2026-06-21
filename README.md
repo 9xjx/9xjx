@@ -2,27 +2,28 @@
 
 
 
-
-<img width="1000" height="800" alt="Untitled15_20260605223902" src="https://github.com/user-attachments/assets/103957f9-5d0e-46e3-8b69-3cae03c393f1" />
+<p align="left">
+<img src="https://cdn.discordapp.com/attachments/1417829270507622442/1518055333161861180/Untitled21_20260620193845.png?ex=6a3886b3&amp;is=6a373533&amp;hm=cdc63390f24a54637bbdba653cd0e60c2e50c330857ae06f12ed70fb656be848&amp;" alt="Image"/>
 
  
 
 
-<pre>
- <p align="right">  ୭˚⋆✴︎˚｡⋆   jay  ּ ֶָ֢.  infp  ּ ֶָ֢.  he / him  ּ ֶָ֢.  7teen .   mlm .    </p>
-<pre>
 
+ 
+
+$${\color{#ffc8df}\text{    𓏏𓏏   jay  𖹭  (ᗒ⩊ᗕ)
+}}$$
 
   
-<pre></pre>
-<p align="right"> 𓏲 ๋࣭  ࣪ ˖  check my carrd for byf and ata + socials!     ( why is coding so hard . . ? )  
-<pre></pre>
 
-<img width="609" height="609" alt="Untitled15_20260605225215" src="https://github.com/user-attachments/assets/dc91395f-8a20-4fb7-bb7c-5dc8860548b8" />
+$${\color{#ffc8df}\text{      he / him ‿‿ 𓈒 7teen  ੭୧}}$$ 
 
-<p align="right" width="500" height="500">
+
+
+
+<p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=evoz1s084a6lc9ctyuxhia7x2&cover_image=true&theme=natemoo-re&show_offline=false&background_color=ffb8b8&interchange=false&profanity=false&bar_color=b7ecf0&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=evoz1s084a6lc9ctyuxhia7x2&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffc8df&bar_color_cover=false">
   </a>
 </p>
 
@@ -30,6 +31,6 @@
 
 
 
-<img width="1000" height="1000" alt="Untitled15_20260605223921" src="https://github.com/user-attachments/assets/7acca2c0-95ec-45a3-b4b0-4685d41244f0" />
+
 
 
